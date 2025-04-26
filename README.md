@@ -22,3 +22,9 @@ Skills Highlighted
 4. Scope Definition and Management
 5. Documentation Standards and Best Practices
 6. Change Management Support
+
+Contact
+
+For more details or sample documents, feel free to connect with me:
+Geetanjali Dhoke
+Business Analyst | https://www.linkedin.com/in/geetanjali-dhoke-51a9711a1/ | gorgeousgeetanjali15@gmail.com
